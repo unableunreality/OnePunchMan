@@ -1,9 +1,9 @@
 # One-Punch Man (Sub Indo) By Razor
-* Chapter 197 : https://cubari.moe/read/imgur/BKKjlQQ/1/1/
-* Chapter 196 : https://cubari.moe/read/imgur/lKjwwwz/1/1/
-* Chapter 195 : https://cubari.moe/read/imgur/phwD9ly/1/1/
-* Chapter 194 : https://cubari.moe/read/imgur/kTcIXlx/1/1/
-* Chapter 193 : https://cubari.moe/read/imgur/dx4YSWi/1/1/
+* Chapter 197 (Revisi) : 
+* Chapter 196 (Revisi) : 
+* Chapter 195 (Revisi) : 
+* Chapter 194 (Revisi) : 
+* Chapter 193 (Revisi) : https://cubari.moe/read/imgur/O7MYeKD/1/1/
 * Chapter 192 : https://cubari.moe/read/imgur/rcekFMu/1/1/
 * Chapter 191 : https://cubari.moe/read/imgur/usnFX5l/1/1/
 * Chapter 190 : https://cubari.moe/read/imgur/qJJXXtK/1/1/
