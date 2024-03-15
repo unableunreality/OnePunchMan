@@ -1,4 +1,7 @@
 # One-Punch Man (Sub Indo) By Razor
+* Chapter 200 :
+* Chapter 199 (Revisi) :
+* Chapter 198 (Revisi) :
 * Chapter 197 (Revisi) : 
 * Chapter 196 (Revisi) : 
 * Chapter 195 (Revisi) : 
