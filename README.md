@@ -5,7 +5,7 @@
 * Chapter 197 (Revisi) : 
 * Chapter 196 (Revisi) : 
 * Chapter 195 (Revisi) : 
-* Chapter 194 (Revisi) : 
+* Chapter 194 (Revisi) : https://cubari.moe/read/imgur/EzMqKEN/1/1/
 * Chapter 193 (Revisi) : https://cubari.moe/read/imgur/O7MYeKD/1/1/
 * Chapter 192 : https://cubari.moe/read/imgur/rcekFMu/1/1/
 * Chapter 191 : https://cubari.moe/read/imgur/usnFX5l/1/1/
